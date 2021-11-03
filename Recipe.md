@@ -8,3 +8,5 @@ Add the chocolate chips and crushed walnuts and mix well.
 Line a baking tray approx 23cm x 15 cm x 5 cm heigh with baking parchment.
 Pour in the batter into the lined baking tray.
 For decoration if you want you ca cut a banana lengthwise in half and put on the top of the batter to caramelise in the oven, add a few extra choc chips on top before baking too for an extra indulgent looking banana bread!
+
+// Ik voeg wat tekst toe ...
